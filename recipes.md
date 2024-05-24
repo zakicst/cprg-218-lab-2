@@ -113,3 +113,19 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Simple Vanilla Ice Cream Recipe
+
+Ingredients: 
+- 1 cup (240ml) heavy cream
+- 1 cup (240ml) whole milk
+- 1/2 cup (100g) granulated sugar
+- 1 tsp vanilla extract
+- Pinch of salt
+
+Instructions:
+1. In a medium bowl, whisk together the heavy cream, whole milk, granulated sugar, vanilla extract, and a pinch of salt until the sugar is dissolved.
+2. Cover the bowl and refrigerate for at least 1 hour until thoroughly chilled.
+3. Pour the chilled mixture into your ice cream maker and churn according to the manufacturer’s instructions (usually about 15-20 minutes).
+4. Transfer the churned ice cream to an airtight container and freeze for at least 2 hours or until firm.
+5. Scoop and enjoy your homemade vanilla ice cream.
