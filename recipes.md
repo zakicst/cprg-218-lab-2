@@ -77,7 +77,7 @@ Ingredients:
 - Salt and pepper to taste
 - 2 tablespoons olive oil
 - 4 slices Swiss cheese
-- 4 hamburger buns
+- 4 lovely homemade hamburger buns from Grandma
 - Lettuce
 - Tomato
 - Mayonnaise
