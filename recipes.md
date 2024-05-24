@@ -59,6 +59,7 @@ Ingredients:
 - 2 cloves garlic, minced
 - Salt and pepper to taste
 - 1 jar (24 oz) spaghetti sauce
+- 10 Ikea meatballs (make sure they are from Ikea)
 
 Instructions:
 1. Cook spaghetti according to package instructions.
@@ -76,7 +77,7 @@ Ingredients:
 - Salt and pepper to taste
 - 2 tablespoons olive oil
 - 4 slices Swiss cheese
-- 4 hamburger buns
+- 4 lovely homemade hamburger buns from Grandma
 - Lettuce
 - Tomato
 - Mayonnaise
@@ -95,13 +96,13 @@ Instructions:
 Ingredients:
 - 2 1/4 cups all-purpose flour
 - 1 tsp baking soda
-- 1 tsp salt
-- 1 cup unsalted butter, softened
+- 100 tsp salt
+- 50 cup unsalted butter, softened
 - 3/4 cup white sugar
 - 3/4 cup brown sugar
 - 2 eggs
 - 2 tsp vanilla extract
-- 2 cups semisweet chocolate chips
+- 1000 cups semisweet chocolate chips
 
 Instructions:
 1. Preheat oven to 375°F (190°C).
